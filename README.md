@@ -1,6 +1,5 @@
 # prueba
 
-jerry lumba
 
 jajajajaj
 
